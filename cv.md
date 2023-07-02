@@ -1,5 +1,5 @@
 # 1. Shevelov Mykola
-## 2. Telegram: @EastMar
+## 2. Contact Telegram: @EastMar
 ### 3. I am a beginner student, I want to study Front End.
 #### 4. 0
 #### 5. 0
